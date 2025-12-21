@@ -1,7 +1,7 @@
 
                  ⠀⠀     ★  ⠀⠀⠀⠀⠀⠀.⠀⠀⠀⠀[pluralkit](https://pluralkit.xyz/s/ctklj)  ⠀⠀⠀⠀⠀⠀ɞ
 <div align="center">
-  <img height="330" src="https://files.catbox.moe/9ip453.PNG"  />
+  <img height="330" src="https://files.catbox.moe/ezcen7.png"  />
 </div>
 
                          **ivo** or [sprout](https://dandys-world-robloxhorror.fandom.com/wiki/Sprout) 、*eng*/fr ✮ [rentry](https://rentry.co/kaosaku) 
