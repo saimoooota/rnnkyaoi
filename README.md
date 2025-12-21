@@ -4,5 +4,5 @@
   <img height="330" src="https://files.catbox.moe/ezcen7.png"  />
 </div>
 
-                         **ivo** or [sprout](https://dandys-world-robloxhorror.fandom.com/wiki/Sprout) 、*eng*/fr ✮ [rentry](https://rentry.co/kaosaku) 
+                         **ivo** or [sprout](https://dandys-world-robloxhorror.fandom.com/wiki/Sprout) 、*eng*/fr ✮ [rentry](https://rentry.co/sproouut) 
 <div align="center">                         enfp   🍓   c+h friendly ɞ
