@@ -5,4 +5,4 @@
 </div>
 
                          **ivo** or [sprout](https://dandys-world-robloxhorror.fandom.com/wiki/Sprout) 、*eng*/fr ✮ [rentry](https://rentry.co/kaosaku) 
-<div align="center">                       enfp   🍓   c+h friendly ɞ
+<div align="center">                         enfp   🍓   c+h friendly ɞ
